@@ -1,1 +1,1 @@
-# proyecto-introducci-n-a-la-IA
+Camilo Giraldo Marín  c.c 1038406020
